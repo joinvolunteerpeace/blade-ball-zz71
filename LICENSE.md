@@ -1,4 +1,4 @@
-
+Experience blade ball like never before with secure Script for blade ball, the #1 Script. Includes auto-farm and anti-ban for unbeatable performance.
 
 
 
